@@ -11,3 +11,17 @@
 https://docs.google.com/forms/d/e/1FAIpQLSdjAQxOF07r1caylnxa1TQq_fFKvkb12aL1MF4hZ5fKvkKCng/formResponse
 
 ```
+
+
+2: Kilimo tech accelerator (Fintech or Agritech)
+
+```
+ Kijani cart - i see it fit here and it may make some a lot of money 
+
+```
+**it end by 10 january**
+# here is the link of the registration form
+```
+https://docs.google.com/forms/d/e/1FAIpQLSfj9rk5-XYGCmgeJcF57tIoRSTV_69ndYBJNDg2u4iCPE5U-g/viewform
+
+```
