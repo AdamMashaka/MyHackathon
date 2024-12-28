@@ -39,3 +39,16 @@ https://docs.google.com/forms/d/e/1FAIpQLSfj9rk5-XYGCmgeJcF57tIoRSTV_69ndYBJNDg2
 https://www.judgify.me/youth-in-tourism-ic2025
 
 ```
+4: DSA Hackathon (Edutech)
+
+```
+Tichika - i see it potential here
+
+```
+**it end by 1 january 2025**
+# here is the link of submission
+
+```
+https://docs.google.com/forms/d/e/1FAIpQLSfodhNHxIsTuq5N40efqDiamMwIIvcD8E4Br3mtHlCobYM0kg/viewform
+
+```
