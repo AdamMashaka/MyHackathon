@@ -16,7 +16,7 @@ https://docs.google.com/forms/d/e/1FAIpQLSdjAQxOF07r1caylnxa1TQq_fFKvkb12aL1MF4h
 2: Kilimo tech accelerator (Fintech or Agritech)
 
 ```
- Kijani cart - i see it fit here and it may make some a lot of money 
+ Mapato AI - i see it fit here and it may make some a lot of money 
 
 ```
 **it end by 10 january**
@@ -27,3 +27,15 @@ https://docs.google.com/forms/d/e/1FAIpQLSfj9rk5-XYGCmgeJcF57tIoRSTV_69ndYBJNDg2
 ```
 
 3: Africa youth in TOurism (Tourism sector)
+
+```
+    Am not sure kind of startup to be presented here but am sure am gonna create it 
+
+```
+**it end by 28 february 2025**
+# here is the link of submission 
+
+```
+https://www.judgify.me/youth-in-tourism-ic2025
+
+```
